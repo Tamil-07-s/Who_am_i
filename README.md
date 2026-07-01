@@ -1,4 +1,4 @@
-This side Tamil Arasan S, an ECE pursuing graduate by college and an Cyber Security analyst by skill. This journey started when i was at my 7th grade where 
+This side Tamil Arasan S, an ECE pursuing graduate by college and an Web pentester by skill. This journey started when i was at my 7th grade where 
 i got tempted by a hacking movie to try those stuffs. Later surfed about them and decided to learn about the domain, but can't proceed as at that time 
 as i don't had that much conceptual knowledge and no proper guidance. So then decided to try JEE and get into NIT/IIT's but ended up at VIT with ECE department. 
 Then during my college 1st year tried some other domains like Video Editing, No code web development, Trading/Investing, Copy writing, Book writing, 
